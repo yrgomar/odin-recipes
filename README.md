@@ -1,1 +1,1 @@
-yooo first project in this bitch
+yooo first project
